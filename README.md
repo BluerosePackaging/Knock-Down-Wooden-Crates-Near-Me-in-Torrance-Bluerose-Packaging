@@ -22,7 +22,7 @@ Businesses handling products with changing transportation requirements often ben
 
 Custom-built configurations offer flexibility for products with unusual dimensions and varying weight capacities. Durable materials and reinforced construction methods create packaging solutions suitable for demanding logistics environments.
 
-Facilities utilizing [**Knock Down Wooden Crates](https://www.bluerosepackaging.com/product/knock-down-wooden-crates/)  frequently incorporate these packaging systems into operations intended to improve storage efficiency and support organized freight preparation.
+Facilities utilizing [Knock Down Wooden Crates](https://www.bluerosepackaging.com/product/knock-down-wooden-crates/)  frequently incorporate these packaging systems into operations intended to improve storage efficiency and support organized freight preparation.
 
 ### Features Include:
 
